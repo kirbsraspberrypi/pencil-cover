@@ -1,6 +1,6 @@
-# Pencil Lead Protective Cover
+# Lead Pencil Protective Cover
 
-On this short tutorial you will learn on how to create a protective cover for your lead pencils. Since sharpened/pointed pencils are prone to breakge when we just put it on our bags, unless we have those metal pencil/pen cases.
+On this short tutorial you will learn on how to create a protective cover for your lead pencils. Since sharpened/pointed pencils are prone to breakge when we just put it on our bags, unless we have those metallic pencil/pen cases.
 
 # Materials:
 
